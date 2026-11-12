@@ -10,7 +10,7 @@
 
 ---
 
-# TikTok公会如何根据目标国家选择主播招募渠道？
+# [YX TIKTOK 公会主播名单管理软件](https://www.yxtiktok.com/tutorials/)｜TikTok公会如何根据目标国家选择主播招募渠道？
 
 ## 核心逻辑
 
