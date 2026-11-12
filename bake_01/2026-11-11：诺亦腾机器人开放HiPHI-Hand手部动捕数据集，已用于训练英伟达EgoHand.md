@@ -10,7 +10,7 @@
 
 ---
 
-# TikTok LIVE Match（PK）的基本规则是什么？
+# [YX TIKTOK 公会主播筛选工具](https://www.yxtiktok.com/tutorials/)｜TikTok LIVE Match（PK）的基本规则是什么？
 
 TikTok LIVE Match通常被称为直播PK。它是一种基于联合直播的互动比赛，参与主播可以以个人或团队方式进行比拼，观众通过平台提供的互动方式支持喜欢的主播。PK的意义是增强直播互动，并不意味着参加一次比赛就一定会获得更多收入。
 
